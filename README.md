@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NATANIM MASRESHA
 - 👀 I’m interested in WEB AND BACKEND DEVELOPMENT
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on PROJECTS  THAT MAKE SOLVE PROBLEMS 
+- 💞️ I’m looking to collaborate on PROJECTS  THAT  SOLVE PROBLEMS AND MAKE DIFFERENCE 
 - 📫 How to reach me ...
 
 
